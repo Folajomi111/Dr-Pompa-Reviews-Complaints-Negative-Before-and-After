@@ -1,3 +1,5 @@
+# Dr Pompa Reviews & Complaints (Negative Before and After Experience)
+
 A few years ago, I found myself completely worn down—physically, mentally, and emotionally.  
 
 I was trapped in a constant cycle of health issues that no doctor, supplement, or diet seemed able to fix.
